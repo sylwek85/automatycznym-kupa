@@ -1,0 +1,1 @@
+# automatycznym-kupa
